@@ -14,7 +14,7 @@ https://navya-sree-cheluri-2006.bolt.host/-link
 
 🏫 Annamacharya Institute of Technology & Sciences, Rajampet
 
-📈 CGPA: **9.01**
+📈 CGPA: **9.20**
 
 💡 Passionate about Artificial Intelligence, Machine Learning, Python Development, and Full Stack Web Development.
 
